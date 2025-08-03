@@ -17,7 +17,7 @@
 
 ---
 
-### 苹果AppleID独享账号（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入】](https://juzixp.top/)
+### 苹果AppleID独享账号（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入】](https://juzixp.com/)
 
 
-### Shadowrocket（小火箭）共享账号地址：[【 点击进入】](https://juzixp.top/buy/21)
+### Shadowrocket（小火箭）共享账号地址：[【 点击进入】](https://juzixp.com/buy/21)
